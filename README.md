@@ -1,1 +1,1 @@
-Parallel universes held a conference call about recursion.
+A caffeinated algorithm sorted the stars by brightness.
