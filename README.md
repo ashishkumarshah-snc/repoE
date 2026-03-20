@@ -1,2 +1,1 @@
-# repoA
-This is a test repo, for verifying something
+The quantum fox leaped over the binary hedge at midnight.
