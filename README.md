@@ -1,1 +1,1 @@
-Clouds whispered secrets to the wandering satellites above.
+The last pixel on Earth blinked twice before sunrise.
